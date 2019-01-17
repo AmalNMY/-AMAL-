@@ -1,2 +1,2 @@
 # -AMAL-
- CodeLovers&amp;Happy to join the community!
+ CodeLover&amp;Happy to join the community!
